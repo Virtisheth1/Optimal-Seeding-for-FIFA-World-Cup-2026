@@ -1,0 +1,1 @@
+# Optimal-Seeding-for-FIFA-World-Cup-2026
